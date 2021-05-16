@@ -1,1 +1,0 @@
-# douglashilariodacruz.github.io
